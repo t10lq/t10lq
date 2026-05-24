@@ -1,4 +1,4 @@
-# Hi there, I'm Osamah Zaid 👋
+# Hi there, I'm Osama Zaid 👋
 
 ### 💻 Web Developer & Digital Solutions Engineer
 
